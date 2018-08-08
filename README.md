@@ -1,5 +1,4 @@
 # Source-SCCamera
 
-The Legend 0f Khaled
 
-Uploded By @i5aaaald
+Uploded By @i5aaaald 🤪
